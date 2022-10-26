@@ -1,3 +1,3 @@
 # onepiecefullbatch
 
-FULL BATCH ONE PIECE FULL
+FULL BATCH ONE PIECE
